@@ -1,4 +1,4 @@
-"# The Key to Marriage Longevity"
+"# A Glance at Marriage Longevity"
 
 Marriage is the ultimate goal for many individuals and the harsh reality is, it doesn't work out for a significant amount of couples.
 What are the keys to a lasting marriage? 
